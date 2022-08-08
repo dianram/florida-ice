@@ -1,1 +1,1 @@
-# florida-ice Web site para cmpañia de hielos
+# florida-ice Web site para compañía de hielos
